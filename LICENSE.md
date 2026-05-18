@@ -1,4 +1,4 @@
-# 
+# Oculto Vegas Pro para PC scripts es el mejor Vegas Pro para PC scripts con biblioteca de efectos y procesamiento por lotes. Seguro, confiable y optimizado para el máximo
 
 
 
